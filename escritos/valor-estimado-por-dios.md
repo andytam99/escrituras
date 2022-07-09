@@ -1,0 +1,9 @@
+# El Valor Estimado por Dios
+
+No se dejen engañar por las palabras. El mundo no se entiende a partir de las palabras, sino a partir de la conversación con la vida misma. Cuando la vida se explique, en las palabras sea como vengan escritas se leerá lo mismo. Pero sepa aquél, que distingue al hombre del resto de las cosas porque así le pareció entenderlo de algún libro, está justamente equivocado, y este mundo es la prueba. Es a partir de estas interpretaciones faltas de vida misma que este mundo se ha concebido. Un mundo de superficialidad y materialismo, concebido por una mente que no conoce más que la superficie de las cosas.
+
+El hombre que valora a todas las cosas como a sí mismo, porque entiende que Dios estima a todas sus obras por igual, sabe que no se valora menos que a aquel que valora a los hombres por encima de todas sus obras. Pero sobre todas las cosas, aquel que defina un limite entre lo que es y conforma al hombre de lo que no, sabe quien conozca a Dios, que está cometiendo el mero error de juzgar. Y definitivamente, ni hablar de los que valoran las cosas con equivalencias materiales. Definir el límite entre lo que nos conforma y lo que no, es dejar de entender que todo lo que está a nuestro alrededor nos afecta de maneras inconcebibles. Es olvidar que somos una parte dentro de un todo que funciona en armonía.
+
+Aún cuando lo que sucede parece un caos, todo está en armonía, y todo lo que acontece como consecuencia de la inconsciencia es obra de la armonía, para recordarse de ella, no para ignorarla como tanto se intenta.
+
+No se engañen con las palabras, ni busquen entender al mundo sino a través del mismo mundo.

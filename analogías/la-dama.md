@@ -1,0 +1,3 @@
+# La Dama
+
+Un hombre se enamoró de una mujer a quien continúa viendo por un buen tiempo, hasta que con el pasar del tiempo comienza a sentir que ella solo lo quiere por el dinero. Y un día decidido le reclama su disgusto: “es que nunca te puedo ver, es como si solamente cuando tengo plata me querés ver”, a lo que la mujer indignada le responde: “¡obviamente!, ¡porque soy una prostituta!”. El hombre impactado por la respuesta, quiebra en llanto, y terminando con ella, se largó.

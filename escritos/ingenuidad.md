@@ -1,0 +1,3 @@
+# Ingenuidad
+
+Debo decir que si se mantiene la ingenuidad en el entendimiento de las cosas nunca se van a entender. No por eso pretendo usar más palabras ni mucho menos dibujarles para que entiendan. El problema de las personas es la falta de razón y la gran superficialidad en su percepción. No debo explicar ni hacer un diccionario de expresiones, solo debo de clarificar que cuando una expresión no se le puede hacer sentido, o se le entiende fantasiosamente, simplemente no se le entiende y es por falta de conciencia. Ese es el trabajo de cada uno desarrollar. Nunca nada puede ser tan sencillo de entender, ni mucho menos tan insensato para no ser tomado en serio. La fantasía es obra de la interpretación no de la creación.
