@@ -1,5 +1,19 @@
 # Escritos Actuales
 
+Quien quiera hacer sentido no hable. No se pida que las cosas sucedan, sino hágase que sean. Las cosas que suceden son por consecuencia, cuando dejen de suceder será también a causa de lo que se es, no de lo que se quiere. Nadie pida que no se le muestre aquello que desea dejar, déjelo y se le dejará de mostrar. 
+
+Tal cosa como la salud sexual no puede existir sino para aquel con una vida sustentada a base de distracciones. Para este no hay cosa material que no deba considerar parte de su salud, pues su fe está en el cuerpo, no en el alma.
+
+Entender es diferente de conocer como la diferencia entre lograr hacer algo a base del sentido y lograrlo a partir del cálculo numérico. De poder alguien formular los cálculos de nuestros sentidos al hacer cada cosa que hacemos, eso será entender. Tan fastidioso como es lograr que un cálculo sea correcto será la vida de aquellos que la quieran vivir a base de razón y no de sentido.
+
+La razón no es el medio por el que se alcanzará nada, ni siquiera una vez alcanzada la razón lleva ella a ningún lado sino se deja. Tener razón es darse cuenta que la razón no lleva a ningún lado. Utilícese la razón mientras deba no para llegar a ella sino para dejarse. Utilícese la razón para despreciarla. Búsquese encontrar lo que se espera de la razón en la espiritualidad. Búsquese encontrar en lo innombrable lo que nos ayuda a salvarnos. Búsquese en lo irracional, no en lo insensato, la respuesta a toda duda, la fuerza a toda debilidad, la ayuda a toda súplica. Entiéndase que la fe es lo que mueve al mundo. Búsquese algo en lo que se pueda depositar la fe para abastecernos con ella nuestras necesidades. Créese una relación con eso que llamamos Dios por falta de mejores palabras que por razón dejamos de buscar, y téngasele fe. No se descuide sobre a lo que se le llama Dios. Séase irracional, no insensato. Todo lo que tiene forma y definición es racional. No se puede tener por Dios ningún objeto ni concepto.
+
+No se detengan en las palabras, las palabras posiblemente estarán mal, pero lo que se quiere interpretar está ahí y entenderlo está en el deber del quien las escucha, pues nadie sino este tiene qué perder o qué ganar.
+
+Solo se puede ser breve cuando se habla entre propios. Entre más coincidencia haya entre la gente, más breve pueden ser entre ellos.
+
+Cuando alguien argumenta que el hombre no tiene ningún arma ni defensa más que la inteligencia contra tanto las adversidades del clima como las del resto de la naturaleza, definitivamente debe venir del norte, y se le ha de olvidar por qué es del norte y no de otro lado. Es un ser enajenado que ha surgido de la disociación del hombre natural. Uno que no conoce la naturaleza del hombre, sino su naturaleza, que surge de la insensatez del hombre, nacido para remediarla mediante la propia insensatez.
+
 Tiene poca vida aquel que comer le es una felicidad. Para lo tanto que se busca, la comida a nadie hace tan feliz, sino que alimenta la infelicidad a través de la inconsciencia y apesadumbra al que intenta concientizar.
 
 Es necesario que el mundo sea inconsciente y reaccione con inconsciencia para ser orquestado por la naturaleza. Es necesario que muchos en la inconsciencia a como nacieron se mueran. No puede haber alimento de verdad para cuantos se les ocurra a los hombres alimentar, a como no puede haber tampoco lugar, y asimismo consciencia. De lo bueno no puede haber para tantos. La inconsciencia tiene su rumbo a la consciencia no por la consciencia sino por la misma inconsciencia. Es necesario que el mundo sea feliz en su ilusión. Es necesario que mueran infelices, es necesario que sufran sin remedio, o bien, es necesario que se arrebaten del sufrimiento y vivan y mueran adormecidos.
