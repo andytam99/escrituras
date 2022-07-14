@@ -1,6 +1,6 @@
 # Escritos Actuales
 
-Si un humano fuera rey y fuera menos humano sus bufones no serían enanos sino bárbaros llamándose  arios, griegos, hebreos y cristianos. No traerían hombres con voces de niño, sino bárbaros proclamando pronunciar correctamente el griego y el latín. No traerían hombres ciegos sino hombres de ciencia. No desnudarían hombres, sino los vestirían de traje y corbata.
+Si un humano fuera rey y fuera menos humano sus bufones no serían enanos sino bárbaros llamándose  arios, griegos, hebreos y cristianos. No traerían hombres con voces de niño, sino bárbaros proclamando pronunciar correctamente el griego y el latín. No traerían hombres ciegos sino hombres de ciencia. No desnudarían hombres, sino los vestirían de traje y corbata. No traerían gigantes, sino bárbaros supremacistas.
 
 Quien quiera hacer sentido no hable. No se pida que las cosas sucedan, sino hágase que sean. Las cosas que suceden son por consecuencia, cuando dejen de suceder será también a causa de lo que se es, no de lo que se quiere. Nadie pida que no se le muestre aquello que desea dejar, déjelo y se le dejará de mostrar. 
 
