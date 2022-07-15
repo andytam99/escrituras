@@ -1,5 +1,11 @@
 # Escritos Actuales
- 
+
+Si se creyera que las leyes tienen la solución a algo, se seguirían a pesar de los pesares. Pero solucionar problemas con leyes es como querer solucionar con dinero. El dinero es la causa de la pobreza, y las leyes la causa de la justicia, pues nadie tiene la potestad de valorar ni de juzgar, y bajo esta falsedad, solo a más falsedades se llegarán. La solución estará en la realidad que no resultará agradable para el que cree en el dinero y en las leyes, pero por lo contrario, será un alivio para quien crea en la verdadera ley, pues ella juzgará y nadie le podrá reprochar. La viva ley no necesita de nadie de viva voz, pues la ley vive y se manifiesta por sí sola con actos que nadie quiere reconocer que es su justicia. Es manifestación de justicia toda enfermedad, es justicia todo comportamiento, lo es todo desastre, lo es toda calamidad. Cuando se reconozcan nadie se atreverá a contrariarlo, sino a reflexionar sobre ello y prevenirlo, no esquivarlo.
+
+Astucia es resolver seguir haciendo lo que inicialmente causó un mal. Inteligencia es dejar resolver dejar de hacer lo que causó un mal.
+
+No busco remedio en la naturaleza, busco acercarme a Dios
+
  La gente vive con sus problemas como los animales viven con las pulgas, pero el de los animales se les puede ver, mientras el de los hombres cada vez menos. La insensatez hace los problemas más grandes e irónicamente menos visibles.
 
 La gente bien sabida pero nunca suficientemente es un recurso que se gestiona como cualquier otro dependiendo de sus características. A un burro no le ponen los trabajos de un caballo, ni a un caballo los de un buey. A ciertas razas de vacas es mejor tenerlas en monte y otras en prado. No es cuestión de nadie hacer lo que quiere, sino lo que se le gestiona si de verdad se consideran recursos, que sin duda así es. No por nada tal país es agrícola y otro tecnológico, uno es minero y otro de servicios, y cambiar esto no está en manos de la querencia de ningún esclavo.
