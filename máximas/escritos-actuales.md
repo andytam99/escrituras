@@ -1,10 +1,146 @@
 # Escritos Actuales
 
+Más vale vivir como un tonto no tomándose nada en serio, que como un vicioso tomándose en serio todo de tan mala manera.
+
+El mundo tiene tan poco que con el tiempo solo sienten que no les importa nada. Es cierto que más fácil entraría un camello por el ojo de una aguja que un rico. Pero por otro lado, no por este desapego es más fácil salvarse, porque el que se desapega de todo deja también lo más importante que es el alma y se entrega a cualquier vicio, acto o incluso a la muerte. La materia provee al mundo de un sentido de vida, y en la cuenta de no tener nada va provocar también un vacío de vida, si no conoce lo que de verdad es la vida.
+
+El pensamiento es la luz de la noche que nos mantiene en la vigilia, la luz del día la que nos engaña a un estado de vigilia adormecida, la inconsciencia es la oscuridad del día que se sobrelleva con comida.
+
+Quizá sea necesario y debido no mezclar las comidas para no esconder bajo el sabor de otro nada que nos haga mal, y para apreciar cada cosa por lo que es.
+
+Si a algo se tiene le por sabiduría, obsérvesele aunque no se le comprenda, con el fin de prevenir y que a futuro se le pueda comprender y ayudar a otros a entenderlo, pues si no es suficiente que un sabio comparta un consejo, poco ayuda más que se compartan con testimonios.
+
+No quiera nadie ser un ejemplo del camino con cosas superficiales, como comer poco, no condimentar o sazonar, no comer carne ni variedad de alimentos, no socializar, abstenerse del alcohol y otras actividades, dormir en el suelo y vestirse simple, o andar leyendo al frente de todos, o apartado pensando a la vista de los demás. Séase ejemplo para los demás con sensatez, siendo útil para los demás conforme a la fe, mostrando un cambio interno en uno mismo, no externo. Que nadie conozca lo externo sin lo interno para no prestarse a juicios de ignorancia. No quieran sorprender a nadie con la vista ni hacer cambios drásticos en las apariencias de la vida. La fe y el buen camino no está en las cosas sino en uno mismo. Lo que cambie de uno externamente por consecuencia de lo interno déjese ver procurando no causar incomodidad a los demás, sino hágase a su debido tiempo, en su debida situación y en su debida manera. Quien de sorpresa conozca lo externo sin conocer lo interno, que no lo conozca del todo, sino que se le atribuya a cualquier otra cosa con tal de no provocar que nadie juzgue sin saber lo que dice. Pues el error que se provoca en los demás es error propio.
+
+El hombre trata a los demás como creen que quieren, no como realmente quieren, que es como deben. El hombre se limita a ser como los demás, si no es que se esmera en ser más que los demás en aquello que los caracteriza. Al hombre les preocupa la gente no por la gente en sí, sino por lo que a la gente les hace gente. 
+
+Vivir bien no es como ganar bien, el que dice vivir bien vive como gana, nunca le basta lo que gana, siempre puede ganar mejor, pero el que vive bien, no puede vivir mejor. El que vive bien puede morir en paz, el que entiende vivir bien como se dice que se gana bien, nunca está listo para morir, siempre teme de todo, nunca el tiempo de vida le es suficiente, nunca obtiene de la vida lo suficiente, nunca le basta. El que viva bien, así esté joven, se siente listo para morir. La muerte feliz es una vida feliz. No puede morir feliz el que vive infeliz, ni vivir feliz el que siente que puede morir infeliz, el que le sería una infelicidad morir. La muerte es el colmo de la vida, si en la muerte no se es feliz,  nunca se pudo ser feliz.
+
+El que quiera compartir el bien no busque relatarlo con los demás sino serlo. No busque nadie memorizar lo que quiere compartir, busque ser lo que quiere compartir. La astucia no sirve para nada. La astucia la vence la astucia, pero la honestidad ¿qué tiene que pueda ser mayor que ella misma? O se es honesto o no se es honesto, pero una honestidad no puede ser más honesta que otra. El que crea lo que quiere compartir, séalo, y hará más siendo lo que comparte con una persona que compartiendo lo que no es con mil. Todo cambio comienza con uno mismo, no se busque hacer un cambio en otros que no se ha se dado ni en uno mismo. Para estos cambios no hay quien los pare.
+
+Poco por poco lleva a mucho. No se use nada que no se sirva, para saber qué es lo que se va a hacer sin sorpresas ni exponerse a faltas de moderación. Hágase mente también de la razón por la que se hacen las cosas antes de hacerlas, como quien pide permiso a un padre o maestro.
+
+Consejos, pocos pueden dar y de pocos se deben tomar. Opiniones, pocos no pueden dar y de todos se deben tomar.
+
+Encuentre cada uno su misión con Dios para que aprenda a dejar todo atrás como el resto del mundo deja todo atrás por sus ambiciones, hasta la misma familia.
+
+Dios lo único que en todo momento es, todo lo demás siempre será y dejará de ser
+
+Que a todo al que se le enseñe el camino lo conozca por ejemplo y no por palabra para que a nadie quede duda de lo que se le expone. Que lo conozca por amistad y no por coincidencia. Para que nadie hable a la ligera, para que nadie levante falsos, para que todos tengan con quien consultar y quitarse las dudas, para que nadie tenga que desconfiar. 
+
+Hacer astucia es cometer contra Dios, aquel a quien todo se le debe confiar, aquel a quien se le debe reconocer que todo está en manos de nadie sino las suyas, aquel cuyos planes son los únicos que suceden como quiere, aquel que es el único que sabe lo que pasará y cómo todo debe pasar, aquel que pensó por todos desde un inicio, aquel cuyo pensamiento es infalible y cuyo juicio es el único que conoce lo justo y lo verdadero.
+
+Si hay algo que hacer en la tierra que no sea pensar y ser útiles a los hombres para Dios, es estar con la familia.
+
+No se quiera salvar la vida sino para morir por Dios. Quiera salvarse la vida de una muerte por las cosas de la tierra para morir por las cosas del cielo.
+
+No caer en la idolatría por más cercano a Dios que sea, en nada reside Dios sino en uno y en la vida misma. No se necesita más que ser para llegar a Dios. Sería una injusticia que el reino del cielo estuviera más cercano a los que tienen más que a los que tienen menos en la tierra, y de haberla iría más en contra de los que tienen que de los que no.
+
+No memoricen de cabeza sino de corazón, no importan las palabras, solo la expresión. Para hablar verdades no se necesita la expresión de un poeta.
+
+Más hambre tiene aquel que come mucho y en un día no come que aquel que come poco. Más pena da el hambriento que come tres veces al día que el hambriento que come una vez al día. Asimismo es más pobre el que requiere de mucho para vivir que el que requiere poco, pues sufre y tiene que trabajar y preocuparse este menos que el otro.
+
+No se exhorte a nadie a que aproveche lo que tiene porque otros tengan menos, porque no hay ningún bien en la falta de solidaridad. Al contrario, promuévase a reflexionar sobre la injusticia que es unos tengan más que otros, porque siempre donde unos tengan más que otros habrán quienes por nada menos que la injusticia no tengan nada. Esta mentalidad no permite a nadie exigir ni siquiera lo necesario solo por consentir la injusticia, porque la pobreza no existe sino causa de la injusticia. Así entonces siempre habrá alguien por más pobre que sea que se diga dichoso de tener lo poco que tiene, porque siempre habrá alguien todavía peor. Y así habrá incluso quien si no conoce a alguien peor, se comparará hasta con un perro.
+
+Nadie que haya llegado a conocer la verdad vive por amor a la vida, sino por amor a la misión. El que diga amar vivir es como guerrero que diga amar la guerra. Quien ame la guerra es un asesino, quien ame el honor es un guerrero.
+
+Nadie se conforme ni se excuse en lo que hacen y en lo que son los demás. El mundo es tan incoherente de admirar el ejemplo pero criticar al que lo sigue. 
+
+Los injustos quieren que todo lo que no se debe hacer se diga para no hacerlo
+
+Cuando la vida se queja lo más que pide es un cambio, pero el mundo pretende seguir haciendo lo mismo solamente tomando una pastilla.
+
+Con todo, la fuerza del hombre es débil, en su esfuerzo no hay solución. Puede que no valga más nada que aquello que Dios a cada uno dio, que cada uno obtiene sin esfuerzo, sin planificar ni implicar a nadie más, es decir, la esencia de cada individual, que sin esfuerzo causa lo que causa.
+
+La obra se llama solo Dios es real aún cuando todas las cosas percibimos y a Dios mismo no, solo Dios es bueno aún cuando nada más nuestros intenciones lo parecen, solo Dios es perfecto aún cuando solo nuestros ideales lo parecen.
+
+La fe va más allá de decir creer o no creer. Nuestros actos descubren nuestra verdadera fe, no nuestras palabras, y por ello se debe aplicar la reflexión para vivir como se piensa y que la vida sea congruente con la fe. La inconsciencia y por consecuencia, la incongruencia entre la fe y la vida, es causa de toda enfermedad. El camino a la consciencia aún en la confusión es de todo la curación.
+
+Hay bondad escondida en el egoísmo, especialmente en aquel consciente. Pues de lo de la tierra siempre conviene dar porque poco o mucho no es bueno, y es por esto que  es engañoso el acto, porque no es más que interés y el verdadero egoísmo bajo la apariencia de la solidaridad, caridad y bondad.
+
+El que se quiera diferenciar y destacarse de entre las personas entienda primero cuáles personas, si los de la familia, si los del barrio, si los del país, si los de la raza, o si de los humanos. No destaca igual uno que se mide con su país a aquel que se mide con la humanidad.
+
+El conocimiento no es memoria, es esencia. Si a un hombre le dieran una guitarra sin nunca antes haberla visto, en nada podría estar tocándola como fue diseñada. Y por la misma naturaleza podría terminar tocando un tango o por lo menos un bolero.
+
+Calma es poder morir tranquilo.
+
+La memoria es la practica de la superficialidad. No hay nada que se deba aprender memorizando, ni en todo caso nada que se pueda. 
+
+De lo de la tierra nadie regala sino porque le conviene, de lo del cielo en cambio por bondad, pues nada le puede convenir más a nadie hacer para sí, si ha ganado el cielo. Lo de la tierra nunca cumple, nunca basta, por ella siempre se recurre a la conveniencia.
+
+Un tormento es la eternidad de una vida inconsciente.
+
+Quien quiera hacer sentido no hable. No se pida que las cosas sucedan, sino hágase que sean. Las cosas que suceden son por consecuencia, cuando dejen de suceder será también a causa de lo que se es, no de lo que se quiere. Nadie pida que no se le muestre aquello que desea dejar, déjelo y se le dejará de mostrar. 
+
+Nada se puede hacer al respecto de aquellos que no están en condición para ser salvados. Nada se puede hacer al respecto de aquellos que nada hasta el momento les ha incomodado ni les deja de incomodar, sino pensar otra alternativa. No es cuestión de uno salvarlos, es cuestión de ayudar a salvarse al que se quiere y se ha comenzado a salvar. El resto ha nacido con todo lo necesario para soportar lo que les ha sobrevenido y lo que les sobrevendrá. El resto está más contentos de lo que uno cree, porque lo que se nos ha dado ha sido a través de sus penas. La sensibilidad del mundo es orquestado por Dios sin error, para sonar a su melodía.
+
+Horrible es criticar a las personas por sus defectos, y aún peor es enfocarse solamente en ellos. Las personas son más que solo sus defectos, y sin duda deben tener algo más profundo y digno de mirar que aquellos. Pero quien juzga los defectos, no solo se cierra a sus bondades, sino que quien es juzgado cierra sus bondades a quien le juzga, y le complace en creer que solo tiene defectos mientras así le juzguen. No se busque lo que no se quiere en una persona sino lo contrario. Quien quiera criticar algo busque entender y pensar antes en una solución para darse cuenta de lo que realmente es. Los defectos de nadie existen por voluntad propia. Quien quisiere remediar los defectos de una persona sin saberlo está pretendiendo cargar con todo un problema de la sociedad. Nadie yerra por puro gusto.
+
+Ponerle precio a un verdadero bien es despreciarlo, en el mercado no se puede encontrar más que males, un vendedor no hace más que pretender saber lo que vende o pretender que sus productos sean realmente lo que se les llama, bienes. El mercado no se vale de la honestidad sino del provecho. Los productos son bienes solo para quien cree bien el dinero y en cuanto que estos produzcan ganancias. Nada que no se sepa, sino algo que no se reflexiona. Ningún llamado bien es realmente un bien si vivimos como humanos, no como entidades mercantiles.
+
+Si cree alguien que por haber inventado la ley primero ha podido ser superior a otros que quizá hasta nunca la inventaron, si se cree que por haber sido los primeros en escribir o hacer artificios se ha de ser superior que otros que nunca aprendieron a escribir ni a hacerse una ropa, definitivamente debe creer que por ser blanco, alto y de ojos azules es más supremo que los que no lo son. Estos todos han de admirar algo nada más que superficial, cuya opinión fácilmente se podría corregir con ser todo lo contrario. 
+
+Por sentido común unos entienden un concepto compartido, otros una sensibilidad común. Unos saben, otros conocen. El que sabe, puede no conocer, el que conoce, puede no saber, pero el que conoce entiende mejor que el que sabe, y el que conoce, entiende que no sabe nada, el que sabe, no entiende que no sabe nada. El que conoce es precavido, el que sabe es confiado. 
+
+Dios tiene muchos nombres, es Dios para quien no se complica la vida, es naturaleza para el necio, y es lo que es para el que no le agrada ninguno de los dos.
+
+Dichoso el que vive con sus padres. Dichoso el que no los deja. Dichoso el que con sus padres nada le falta. Dichoso el que teniendo a los padres no busca a nadie más.
+
+La materia no deja de ser apariencia y mentira para el que conoce la verdad, mientras la apariencia apenas no es más que la mentira para el que conoce la materia
+
+Conforme la gente olvida pensar, olvida también a mantener y ejercer debidamente el cuerpo. Se decae su postura, se dañan las articulaciones, se descuidan los músculos, se pierde la coordinación. El que no se aguanta la vida con el pensamiento tampoco se aguantará el cuerpo con la salud.
+
+Es una desgracia que exista el goce que no sea el de la vida misma y ordinaria. Es una impiedad permitirse juzgar un día mejor que los demás. 
+
+Tras contemplar la miseria de hombres que nos rigen en este mundo, no queda otra que reprocharse a uno mismo, sin duda se debe estar en un estado deplorable, pero no tanto como para no sentirse desdichado y peor aun, para admirar a estos hombres que nos dominan. ¿Cuál es ese estado? La materia, este es su mundo.
+
+El espíritu o el alma está en la misma naturaleza del cuerpo, la naturaleza es una misma y vive desde antes del cuerpo como lo hará después. 
+
+Comer es un vicio que no se debe enseñar a nadie, ni debe ser aprendido. Por lo tanto no se sea antojado ni se coma por costumbre. Como todos los vicios y males, no se coma frente a los demás, ni se busque gozar del alimento ni mucho menos expresar el gozo. Que cada uno entre los que tengan el vicio de comer, que debes ser la mayoría sino todos los hombres hoy, busquen su vicio cuando les impulse. No se promueva ofreciendo a nadie de ninguno de sus vicios, mucho menos se le asuma que lo comparte en ningún nivel. Por otro lado, no se le critique a nadie por sus vicios que nadie por mucho o por poco se diferencia de otro siempre que tenga el mal del vicio. Al contrario, si ha de ser reprochable como todos, busque ayudársele, nunca simplemente criticársele.
+
+Si no se esta seguro de lo que se va a comer, póngase en perspectiva todo lo que se podría comer para entender lo que se va a hacer. Posiblemente se pueda aplicar lo mismo con todo. Siempre que se pueda diríjase sin azar.
+
+El cuerpo quiere probar constantemente si las cosas son reales. Quiere restablecer su fe con cada cosa que ve, en creer que lo que ve es real y le hace bueno, y que no es ilusión y le hace malo. ¿Cómo hacer que el alma sienta la misma curiosidad por lo espiritual? ¿que todo lo quiera probar con el alma y no con el cuerpo? ¿cómo hacer que esto le dé vida? ¿que todo lo que el alma ve lo quiera probar como el cuerpo con su boca?
+
+Todo siempre ha sido armonía, y ha habido armonía que nadie la ha ignorado, a como ha habido armonía que solo la han reconocido los que conocen a Dios. Y aunque no todos reconozcan la armonía, todos actúan con armonía, resignados a aceptarla como Dios la quiere.
+
+Las obras buscan resultado en la Tierra, el pensamiento busca resultado en el Cielo. La obra es otra droga de la vida, otro objeto de esclavitud.
+
+Todo lo que compone este mundo tiene su función y su enfoque, del cual es imposible remover, lo cual es claro cuando se trata de mostrar nuestros intereses a los demás.
+
+Lo que sea que se quiera expresar en el mundo tiene su naturaleza en recibir un estímulo terrenal. El fin de un acto espiritual no es terrenal. Lo espiritual se representa por su esencia, no por su acto. 
+
+Nadie ni nada es ajeno ni distinto a uno, se es una integridad que se ve a sí misma en partes, como quien ve el aire y el agua distinto a sí. Como quien ve ajeno un árbol, como quien ve ajena su propia comida. Sin ninguna de ellas podríamos ser.
+
+Es de la naturaleza de la materia engañar al alma inocente, como es naturaleza de un animal tomar lo de un niño
+
+No se quiera hablar por nada sino apenas por lo que se puede probar con los sentidos.
+
+La sabiduría no es para ofender ni para hacerse odiar. El que ofenda y se haga odiar queriendo ser sabio no tiene nada de sabio.
+
+El problema no es ser justo, es estar donde no se debe estar. El problema no es ser oveja, sino meterse con lobos.
+
+Si fuera razonable tomar y peor aún, emborracharse, para celebrar un triunfo, un hombre de bien viviría ebrio toda su vida, con solo considerar un triunfo no rendirse al vicio con las contrariedades de la vida. Para un hombre de bien un triunfo es vivir el día sin quejarse. Es aceptar las cosas como son. Para este hombre no habría sobriedad. ¿No es bueno verse al espejo y no sentirse acomplejado? ¿No lo es sentirse seguro en uno mismo? ¿Cómo debe ser un bien no aceptar la vida como es, feliz, sin quejas ni desdichas? Sería como nunca amarse a uno mismo ni querer concebir que uno se puede amar. De todos modos, si los días celebres y de triunfos son buenos, ¿quién no quisiera que todos sus días fueran buenos? Irónicamente para esto la gente sí que no tienen falta de moderación. Para esto la astucia sí que no basta, ni buscan manera de lograrlo, sino que ahora sí se conforman, ahora sí se moderan.
+
+El cuerpo es como un barco y la mente como una vela, el comportamiento como el viento y el mar, y el carácter la reacción del cuerpo según la vela a través del viento y el mar. Tener buen carácter es saber manejar bien el barco.
+
+El que quiera aprender no espere tener tiempo sino paciencia.
+
+Quien crea que con la muerte se acaba todo se equivoca. El mundo es producto de la fe, y la fe es inmaterial. La vida toma forma en la tierra de acuerdo con lo que se es en la fe. La fe que cree en la materia seguirá tomando forma en lo material. Así como se multiplica la confusión y la ignorancia conforme más se quiere entender, se hace más compleja la vida. Hasta ahora, todo esto ha sido lo que mi fe se ha afanado por entender. Si entendiera mejor, pero no lo que debo, viviría una vida y quizá un mundo más primitivo. Si entendiera menos aún, viviría una aberración de mundo peor que la de este en que vivo, o una vida más abominable en este mismo mundo. Pero así como los lenguajes se expresan diferente de una misma naturaleza con un mismo medio, así también la fe con lo material. El que precisa, por su fe, de hablar, no tendrá otra manera de vocalizar que la que se tiene aquí. De acuerdo a su fe hablará de una manera o de otra pero no dejará de tener el mismo aparato vocal, o de haberse inspirado en la naturaleza de este mismo. Entonces, el mundo se hará más o menos complicado de acuerdo a la misma fe, y como en un sueño, se despertará sin conciencia del tiempo pasado.
+
+El fin no es volver a vivir como en alguno de los tiempos de antes. Hasta los más nobles de los humanos, los más primitivos y aislados de los indígenas, viven buscando a Dios en las cosas de la tierra. El fin es entender que la vida no es buscar vida en lo terrenal, que lo terrenal es una manifestación de la inconsciencia. Es por esto que no hay nada en este mundo que no nos corresponda, nada que ignoremos que no nos afecte, ninguna acción ni siquiera un pensamiento que no tenga consecuencias, nada que podamos terminar de comprender, nada que cuanto más se trate de entender más entienda.
+
+A tal punto viven de ilusiones las personas que respiran mejor perfumando un mal olor o respirando por la boca.
+
+Los necios le ponen nombre a todo y siguen sin entender nada.
+
+La vida se encarga de enseñarle a uno que nada es despreciable. Se le hacen amistades de una manera o de otra, familiares de una manera y otra. Nos sucede de lo uno y de lo otro, que al final nada se nos permitió despreciar porque habría sido despreciarse a uno mismo o hacerse uno despreciado. ¿Cómo va a despreciar uno a un familiar sin ser despreciado por otros por semejante impiedad? ¿Cómo despreciarse uno sin ser despreciado por los demás? Nada es digno de desprecio, sino de comprensión. El desprecio atrae desprecio, la comprensión, comprensión. El amor atrae amor, la bondad, bondad. La maldad, maldad. ¿Qué hay que se haga mal que resulte bien? Uno cosecha lo que siembra.
+
 Frecuentemente no el hombre tan ejemplar como lo es frente a la gente, no por vanidad sino por deber de dar un buen ejemplo, aunque no se sea, porque de lo contrario si no se ejemplifica el bien, ¿quién va a desearlo? Lo indebido está en ser abiertamente poco ejemplar y querer dar un buen ejemplo. Lo indebido es ser un ejemplo de la incoherencia. De todas maneras, no todo el que parece no parece congruente es incongruente necesariamente, sino que se encuentra en proceso de serlo. Congruente es quien aún el que falla pero vela por llegar a serlo. Incongruente es el que ni siquiera intenta y se proclama como tal.
 
 Lo más importante de la educación no es hacer que una persona sea una persona de bien en lo que sea no por imitación sino por esencia. Se le debe exigir que sea, no que aparente. Cuando se le enseña a alguien a no robar se le debe enseñar no a no robar sino pensar sobre lo que es justo. No se le debe enseñar a nadie a no mentir, sino pensar sobre lo que es debido. No se le debe enseñar a nadie a no comer mal, sino a pensar por qué debe comer bien. A nadie que solamente sabe comer bien sabe lo que es sano. A nadie que se le enseña simplemente a no mentir sabe lo que es debido. Ni así a quien se le enseña simplemente a no robar puede necesariamente saber lo que es justo. ¿No exaltan los vendedores sus productos y se aprovechan de la ignorancia de los consumidores para venderlos mejor? ¿Cómo es entonces más justo un vendedor de un ladrón o de un estafador? ¿No es igual de indebido alguien que no miente pero que no da advertencias de lo malo de lo bueno mientras a su vez evita dar explicaciones? ¿No es igual de indebido alguien que evita hablar sino a conveniencia propia? ¿No es igual de insano alguien que come saludable pero come sin moderación o tiene vicios de otros tipos? Sea entonces el esfuerzo de educar no para contener sino para estimular, no en tallar sino en modelar, no en podar raíces sino ramas. El pensamiento no se enseña a fuerza sino con el pensamiento, a fuerza se castiga el no pensar, pero no el pensar mal. El no pensar bien se resuelve con el pensamiento.
 
-Para educar hay que aprender a pegar como a poner bajo estrés a quien se le quiera educar, de la misma manera en que se pone el hierro bajo el fuego y se le arrea, no para quebrarlo, sino para enderezarlo. No importa que se resienta quien se eduque, porque quien está siendo educado no sabe lo que es bueno para sí, sino no necesitaría ser educado, porque se educa a quien no sabe, no se puede educar al sabe o sería una contradicción. Y ¿de quién se quiere tener estima? ¿De un niño sin juicio o de una persona hecha y derecha? ¿De un inmaduro o de un inculto? El niño no es nadie mientras es niño, es materia de persona, es masa para amasar, no pan de ningún tipo. No hay nada de un niño que se tenga que tomar en cuenta, porque el niño no sabe lo que es bueno para sí y por ende no tiene ningún derecho a opinar de no ser por la manifestación del cuerpo, que es libre de opinión, como una diarrea, una tos, un vómito, una fiebre, o una palidez. El niño no existe, ni el joven ni el adulto, solo existe la persona. Y de ahí, solo existen personas maduras y por madurar, existen cultas y por culturizar, existen personas hechas, y por hacer, pero no existen inmaduras a no ser que se les quiere así, ni existen incultas si no se les quiere incultas, ni deshechas si no se les quieren deshechas. Una persona cuanto más pronto se hace persona, más rápido agradece lo que se le hizo. Pero si nunca se le educa, nunca va a agradecer nada de lo que se le da, ni lo que se le consiente, ni mucho menos lo que se le resiente, porque toda educación es susceptible al resentimiento. Entre más rápido una persona se haga persona, menos se tenderá a resentir cuando se le reproche y se le enseñe algo. Porque se educa a quien se le tiene estima para hacerle estimable, pero en cambio ¿quién va a tener estima por una persona que no se le educa? A un maleducado no le puede querer ni la propia familia. Edúquese a las personas como personas, no como niños, ni adolescentes, ni jóvenes.
+Para educar hay que aprender a pegar como a poner bajo estrés a quien se le quiera educar, de la misma manera en que se pone el hierro bajo el fuego y se le arrea, no para quebrarlo, sino para enderezarlo. No importa que se resienta quien se eduque, porque quien está siendo educado no sabe lo que es bueno para sí, sino no necesitaría ser educado, porque se educa a quien no sabe, no se puede educar al sabe o sería una contradicción. Y ¿de quién se quiere tener estima? ¿De un niño sin juicio o de una persona hecha y derecha? ¿De un inmaduro o de un inculto? El niño no es nadie mientras es niño, es materia de persona, es masa para amasar, no pan de ningún tipo. No hay nada de un niño que se tenga que tomar en cuenta, porque el niño no sabe lo que es bueno para sí y por ende no tiene ningún derecho a opinar de no ser por la manifestación del cuerpo, que es libre de opinión, como una diarrea, una tos, un vomito, una fiebre, o una palidez. El niño no existe, ni el joven ni el adulto, solo existe la persona. Y de ahí, solo existen personas maduras y por madurar, existen cultas y por culturizar, existen personas hechas, y por hacer, pero no existen inmaduras a no ser que se les quiere así, ni existen incultas si no se les quiere incultas, ni deshechas si no se les quieren deshechas. Una persona cuanto más pronto se hace persona, más rápido agradece lo que se le hizo. Pero si nunca se le educa, nunca va a agradecer nada de lo que se le da, ni lo que se le consiente, ni mucho menos lo que se le resiente, porque toda educación es susceptible al resentimiento. Entre más rápido una persona se haga persona, menos se tenderá a resentir cuando se le reproche y se le enseñe algo. Porque se educa a quien se le tiene estima para hacerle estimable, pero en cambio ¿quién va a tener estima por una persona que no se le educa? A un maleducado no le puede querer ni la propia familia. Edúquese a las personas como personas, no como niños, ni adolescentes, ni jóvenes. 
 
 Puede considerarse que no sea necesario colectar ni siquiera frutos ni vegetales si todo de lo que se es alimentado de ellas es necesario para su desarrollo, aunque de momento se sienta imposible, pues no conocemos de momento ningún otro sustento. Pues si la creencia de la necesidad alimentarse tantas veces al día se ha visto claramente refutada, no niego que la creencia de la necesidad de alimentarse del todo pueda ser igualmente refutada. Mejor que esté en nuestras esperanzas, como lo es el cielo, pues nada hace mejor a una persona en lo que sea que la esperanza. La esperanza no debe estar en el medio sino en el fin. Si el alimento es capaz de causar tan solo una necesidad, una dependencia o un pesar, es suficiente para no considerarse tan bien como tanto se le adora. Pero algo aún peor es lo que causa la necesidad de comer que debe ser entendido, y que no es tan simple como se cree. Pues en nada se diferencia la llamada hambre a la ansiedad, dado a que mientras uno siente hambre tres veces al día, otro puede apenas sentirlo una vez al día o no sentirlo del todo, sin estar en lo absoluto peor en ningún aspecto que aquel que siente hambre todos los días, varias veces al día. Y quien come apenas una vez al día sabe que una necesidad mayor frecuentemente no es más que solo ansiedad, pues ni siente ácido en el estómago. Suficiente es decir que nunca suele ser momento de comer sino tras sentirse mal, de la misma manera que se fuma o se toma. Así es que más importante sería considerar lo que causa ansiedad y mirar hacia un futuro cada vez menos dependiente de la misma comida.
 
@@ -24,7 +160,7 @@ Astucia es resolver seguir haciendo lo que inicialmente causó un mal. Inteligen
 
 No busco remedio en la naturaleza, busco acercarme a Dios
 
- La gente vive con sus problemas como los animales viven con las pulgas, pero el de los animales se les puede ver, mientras el de los hombres cada vez menos. La insensatez hace los problemas más grandes e irónicamente menos visibles.
+La gente vive con sus problemas como los animales viven con las pulgas, pero el de los animales se les puede ver, mientras el de los hombres cada vez menos. La insensatez hace los problemas más grandes e irónicamente menos visibles.
 
 La gente bien sabida pero nunca suficientemente es un recurso que se gestiona como cualquier otro dependiendo de sus características. A un burro no le ponen los trabajos de un caballo, ni a un caballo los de un buey. A ciertas razas de vacas es mejor tenerlas en monte y otras en prado. No es cuestión de nadie hacer lo que quiere, sino lo que se le gestiona si de verdad se consideran recursos, que sin duda así es. No por nada tal país es agrícola y otro tecnológico, uno es minero y otro de servicios, y cambiar esto no está en manos de la querencia de ningún esclavo.
 
