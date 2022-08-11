@@ -1,5 +1,63 @@
 # Escritos Actuales
 
+La muerte se muere, la vida se vive. La vida siendo vida, no puede tener muerte. El que muere, comienza a morir desde que es engendrado a la muerte. El que vive, desde que es engendrado a la vida vive.
+
+Hombres se preocupan antes de cualquier cosa que de ellos mismos. Como si el mundo no tuviera señor se encargan del mantenimiento del mundo.
+
+Como un vagabundo que camina inmune en la noche. 
+
+Como un delincuente no es víctima, es peatón de la ciudad en la noche.
+
+No es lo mismo ser débil ante Dios que ser débil ante el hombre. El que es débil ante Dios no le afecta el desprecio, el que es ante el hombre le afecta pero se conforma con ser despreciable y sentirse despreciado. El que es ante Dios, no es pobre, el que es ante el hombre, es y se conforma con la pobreza. El que es ante Dios, es libre, el que es ante el hombre, se conforma con no ver cadenas. El que es ante Dios, es feliz, el que es ante el hombre, se conforma con entretenerse y estar distraído. El que es ante Dios, es sano, el que es ante el hombre, se conforma con no sentirse enfermo.
+
+Como quien no conoce al padre. Como quien no tiene ante quien comportarse. 
+
+Como si todo lo que existe a nuestros sentidos hubiera sido obra de un incesto
+
+No se reproche ni se cuestione a nadie que no hace algo por hacer que lo comience a hacer, aunque sea algo que vaya a llegar a hacer de todos modos, sino que cada uno haga lo que haga por sí mismo, y ya los otros por eso seguirán, no por lo otro. Por hacer el mundo hace, no por exhortar a que se haga. Por actuar el mundo actúa, no por hablar.
+
+Como si para alguien el aire no se sintiera. Como si no a los ojos de alguien el mar no se moviera. Como si del agua nadie se pudiera apoyar. 
+
+Como si los tonos fueran palabras, y los ritmos expresiones. Como si no necesitara palabras. 
+
+Como extranjero que se queja de las costumbres de una familia que le presta hogar. Como invitado que se queja de la comida que le sirven. Como jugador que se queja de las reglas del juego.
+
+Como si al final de la vida gritara corte el director se dejará la vida, y se saldrá del escenario, y se quitará el traje en un cuarto blanco y por una puerta hacia lo oscuro se saldrá.
+
+Como si lo hiciera dentro de la vida misma, sin darse cuenta que así es también en la realidad. 
+
+Como un director que muestra su desprecio hacia las cosas en sus obras y en realidad las desprecia también. 
+
+Tan insensato es el mundo que a un perro que no habla como sea le sacan las palabras, mientras que a una persona que habla si no se las buscan del todo, se las asumen pudiendo escuchárselas. Una persona que no habla, para el mundo es más muda que un perro. Un perro que no se puede expresar, para el mundo causa más simpatía que una persona que no se expresa. Más lástima les da un perro de calle que una persona. Más les preocupa un perro agresivo que una persona.
+
+Las acciones en la tierra nos encadenan a la tierra, las del cielo nos liberan 
+
+No se siga tramado en la vida oyendo eso que llaman política.
+
+Últimamente todo lo que se debe hacer no es más que lo que debe hacer un anciano. La ancianidad es la ley impuesta por la fuerza.
+
+Frente a un señalamiento, nunca nadie va a decir que lo que hace es malo, nunca va a dejar de alabar sus actos. Por eso búsquese la justicia no de manera que las personas tengan que abogar sobre sus actos, sino que expliquen lo que hacen y lo que significa para todos y para todo lo que hacen. Así se juzgan no las intenciones, sino los actos, sin buscar condenar a nadie. 
+
+Alguna vez se pudo decir que se era ama de casa, hoy lo que se es, si acaso, es sierva.
+
+El fin de la vida es aprender a morir. El que no se sabe unir con el espíritu, se une con la materia. 
+
+Como alguien encerrado en cuatro paredes, que tiene problemas consigo mismo, se duerme y comienza a pensar, y luego a soñar. Y sueña toda una vida que corresponde a su realidad. Después del sueño, se despierta con el mismo problema y enrabiada consigo misma. Queriendo morir, pero no puede. Y vuelve a dormir, a soñar lo que corresponde igual a su alma, y está vez encuentra su salvación, destructurando su sueño hasta verse a sí misma, como alguien que no puede morir. 
+
+Como alguien a quien le dan un libro para escribir, y conforme escribe su historia, se profundiza tanta en ella que se olvida de sí, y siendo de naturaleza inmortal, desea inmortalizar su historia, y por ello vive infeliz, hasta que se da cuenta que es inmortal y que lo que la naturaleza de lo que hace es pasajero, como una página, y que su expresión no es propia sino dada por los fundamentos que le superan, y así se da cuenta que si lo que quiere es ser inmortal que deje de escribir porque ya lo es, y si quiere escribir, que no quiera esperar nada distinto a lo que está establecido para la expresión. Y así, se comenzaron a escribir obras que exploraban los fundamentos.
+
+Los doctores mismos no saben lo que hacen, saben lo que tienen que hacer, y lo que tienen que hacer es seguir las instrucciones que recibió en su estudio y no cuestionarlas, como un soldado solo debe hacer lo que le dicen y solo debe saber lo que tiene que saber, que es lo que le dicen. Por eso un soldado es soldado, y un doctor, doctor. Porque antes de convertirse en eso se le prueba cómo sigue las ordenes, y solo por seguir ordenes se gradúa. Y en las pruebas nada es correcto sino lo que le dicen que es correcto. Como en una práctica de libro, las respuestas correctas están en las últimas paginas del libro, y en base a eso el profesor califica la práctica, sean correctas o no. El profesor no enseña a nada más que lo que está en el libro, y tampoco tiene derecho ni es su responsabilidad cambiar nada, solo a enseñar de acuerdo al libro. Nadie que quiera saber la verdad debe tampoco esperar la verdad en ningún académico.
+
+La voz está para escuchar la voz interior cuando no se deja escuchar por el ruido. 
+
+La oscuridad es la calma. Cuando no hay calma hay luz. La luz por sí sola desconcierta. Los colores comienzan a aparecer y se juntan en proporciones distintas de acuerdo con el estado del alma. Y se miran las cosas para verse mejor a uno mismo. Si los colores no bastan, comienzan a crearse las formas. 
+
+El que no fuma, no puede estar frente al que fuma sin toser sin contradecirse, porque sino ¿de qué se queja? El que conoce lo que es el aire puro no puede estar donde no lo hay sin enfermarse. Insensato sería reprocharle a quien anuncia un bien, que no aparezca mal en donde no lo hay.
+
+Desgraciada la mujer que busca atraer miradas, que se usa para llamar la atención, que se aprovecha y se gloria de las cualidades de su apariencia, que consiente ser lo que los que la ven cree que es, que consiente ser un pedazo de carne y no un alma.
+
+Mayor violencia es aquella que comete el inteligente que aquella que comete humilde, porque la del inteligente no se deja ver, mientras que la del humilde es tan inocente que se deja ver por todos. La violencia de aquellos que viven de la delincuencia no le llega ni a los talones a aquella que viven de su inteligencia, a tal punto que a estos no se les considera ni como delincuentes, porque para empezar cuando las cosas no les suceden acorde al plan, apenas se puede saber quienes son. Por eso, apártese y evítese a los que no viven de una manera simple, humilde y honesta, evítense a los que guardan secretos, a los que traman y tienen muchos asuntos personales, evítense a los que viven con poca transparencia.
+
 Más vale vivir como un tonto no tomándose nada en serio, que como un vicioso tomándose en serio todo de tan mala manera.
 
 El mundo tiene tan poco que con el tiempo solo sienten que no les importa nada. Es cierto que más fácil entraría un camello por el ojo de una aguja que un rico. Pero por otro lado, no por este desapego es más fácil salvarse, porque el que se desapega de todo deja también lo más importante que es el alma y se entrega a cualquier vicio, acto o incluso a la muerte. La materia provee al mundo de un sentido de vida, y en la cuenta de no tener nada va provocar también un vacío de vida, si no conoce lo que de verdad es la vida.
